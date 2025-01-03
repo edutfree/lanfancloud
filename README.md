@@ -1,14 +1,12 @@
-# 蓝帆云官网地址2024最新入口
+# 蓝帆云官网地址2025最新入口 + 最新优惠码
 
 蓝帆云跑路了吗？暂时没有。不过机场总会有跑路风险，为尽可能减少损失，选购套餐可按月支付。下面是最新地址：
 
 永久官网：[https://lanfan.cloud](https://xuv.cc/out/lanfan)
 
-地址1：[https://lf.lan-fan.cc](https://lf.lan-fan.cc/auth/register?code=Mw7q)
+地址1：[https://v2.lanfan.xyz](https://v2.lanfan.xyz/auth/register?code=Y13g)
 
-地址2：[https://lf.lan-fan.xyz](https://lf.lan-fan.xyz/auth/register?code=Y13g)
-
-地址3：[lanfan.cc](https://lf.lanfan.cc/auth/register?code=Y13g)
+地址2：[lanfan.cc](https://xuv.cc/out/lanfan)
 
 ## 简介
 
@@ -22,7 +20,7 @@
 
 【优惠活动】
 
-蓝帆云618特惠包年9折优惠代码：[lanfan](https://xuv.cc/out/lanfan)
+蓝帆云2025新年包年7折优惠代码：[lanfan](https://xuv.cc/out/lanfan)
 
 ## 蓝帆云特色
 
