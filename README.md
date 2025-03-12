@@ -4,7 +4,7 @@
 
 永久官网：[https://lanfan.cloud](https://xuv.cc/out/lanfan)
 
-地址1：[https://v2.lanfan.xyz](https://v2.lanfan.xyz/auth/register?code=Y13g)
+地址1：[https://p.lan-fans.xyz/](https://p.lan-fans.xyz/auth/register?code=Y13g)
 
 地址2：[lanfan.cc](https://xuv.cc/out/lanfan)
 
@@ -20,7 +20,7 @@
 
 【优惠活动】
 
-蓝帆云2025新年包年7折优惠代码：[lanfan](https://xuv.cc/out/lanfan)
+蓝帆云2025 包年7折优惠代码：[lanfan](https://xuv.cc/out/lanfan)
 
 ## 蓝帆云特色
 
