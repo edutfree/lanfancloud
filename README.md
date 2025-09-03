@@ -1,10 +1,10 @@
-# 蓝帆云官网地址2025最新入口 + 最新优惠码
+# lanfancloud蓝帆云官网地址2025最新入口 + 最新优惠码
 
 下面是最新地址：
 
-永久官网：[https://lanfan.cloud](https://xuv.cc/out/lanfan)
+永久官网：[lanfancloud.com](https://xuv.cc/out/lanfan)
 
-地址1：[https://p.lan-fans.xyz/](https://p.lan-fans.xyz/auth/register?code=Y13g)
+地址1：[lan-fans.xyz](https://p.lan-fans.xyz/auth/register?code=Y13g)
 
 地址2：[lanfan.cc](https://xuv.cc/out/lanfan)
 
